@@ -1,1 +1,0 @@
-# Guided-Capstone-1
